@@ -1,4 +1,7 @@
 <p align="center">
+    how i feel kinning the most useless hundred line character 💔💔
+</p>
+<p align="center">
     <img src="https://file.garden/Z1OpYh3OMHUM4tMG/Untitled237_20251129170705.png" width="200" height="300" />    
 </p>
 
