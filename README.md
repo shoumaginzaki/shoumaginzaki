@@ -3,6 +3,9 @@
 </p>
 
 <p align="center">
+    ata remake in progress + rentry if im motivated enough
+</p>
+<p align="center">
     🦭 ‎ <b>sealie</b> ‎ 𓎟𓎟 ‎ she / <i>they</i> ! ‎ ⸝⸝ ‎ socially awkward
 </p>
 <p align="center">
