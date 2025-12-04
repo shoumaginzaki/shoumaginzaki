@@ -3,13 +3,11 @@
 </p>
 
 <p align="center">
-    ata remake in progress + rentry if im motivated enough
+    remaking respiratory + ata + rentry later
 </p>
 <p align="center">
-    🦭 ‎ <b>sealie</b> ‎ 𓎟𓎟 ‎ she / <i>they</i> ! ‎ ⸝⸝ ‎ socially awkward
+    hi im sealie... i kin shouma... gulps...
 </p>
-<p align="center">
-    c+h encouraged ‎ ٩(ˊᗜˋ )و ‎ preferably w2i
 <p align="center">
    <a href="https://rentry.co/stitch-mouth"> rentry</a> ‎ ‎ ｡ ‎ <a href="https://sorrowfulseal.atabook.org/"> atabook </a>
 </p>
