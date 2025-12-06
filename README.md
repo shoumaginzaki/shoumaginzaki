@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-    remaking respiratory + ata + rentry later
+    remaking profile later
 </p>
 <p align="center">
     hi i kin shouma ginzaki from the hundred line: last defense academy... gulps... filler until i remake my profile i swear
