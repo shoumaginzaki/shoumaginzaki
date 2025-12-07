@@ -6,8 +6,5 @@
     remaking entire profile later after exams
 </p>
 <p align="center">
-    hi i kin shouma ginzaki from the hundred line: last defense academy... gulps... filler until i remake my profile i swear
-</p>
-<p align="center">
    <a href="https://rentry.co/stitch-mouth"> rentry</a> ‎ ‎ ｡ ‎ <a href="https://sorrowfulseal.atabook.org/"> atabook </a>
 </p>
