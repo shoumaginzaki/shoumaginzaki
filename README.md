@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-    remaking entire profile later after exams
+    remaking entire profile later after exams (SOON)
 </p>
 <p align="center">
     hi im shouma / sealie 
