@@ -10,11 +10,11 @@
    🐶 ‎ 𓎠𓎟 ‎ sealie ‎ ︵︵ ‎ shouma ‎ ‎ ۶ৎ
 </p>
 <p align="center">
-   she / they ‎ ༄.° ‎ rentry && ata rmk wip ‎ ‎⊹
+   she / they ‎ ୨ ★ ୧ ‎ c+h encouraged ‎ ‎｡
 </p>
 <p align="center">
-   c+h enc even if not in name ‎♡
+   rentry && ata rmk wip ‎♡
 </p>
 <p align="center">
-   <a href="https://rentry.co/stitch-mouth"> rentry</a> ‎ ‎ ⊱  ۫ ׅ ✧ ‎ <a href="https://sorrowfulseal.atabook.org/"> atabook </a>
+   <a href="https://rentry.co/stitch-mouth"> rntry</a> ‎ ‎ ⊱  ۫ ׅ ✧ ‎ <a href="https://sorrowfulseal.atabook.org/"> ata </a>
 </p>
