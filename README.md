@@ -3,7 +3,7 @@
 </p>
 
 <h3 align="center"> <i>
-    ❝ i don't care if it hurts. ❞
+    ❝ you're so fucking special, i wish i was special... ❞
 </h3> </i>
 
 <p align="center">
