@@ -1,5 +1,5 @@
 <h3 align="center"> <i>
-    ❝ ‎ i bet on losing dogs...‎  ❞
+    ❝ ‎ bad thoughts give me bad dreams, and my bad dreams make me sleepwalk.‎  ❞
 </h3> </i>
 
 <p align="center">
