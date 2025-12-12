@@ -13,8 +13,8 @@
    she / they ‎ ୨ ★ ୧ ‎ c+h encouraged ‎ ‎｡
 </p>
 <p align="center">
-   rentry && ata rmk wip ‎♡
+   rentry rmk wip ‎♡
 </p>
 <p align="center">
-   <a href="https://rentry.co/stitch-mouth"> rntry</a> ‎ ‎ ⊱  ۫ ׅ ✧ ‎ <a href="https://sorrowfulseal.atabook.org/"> ata </a>
+   <a href="https://rentry.co/stitch-mouth"> rntry</a> ‎ ‎ ⊱  ۫ ׅ ✧ ‎ <a href="https://shoumaginzaki.atabook.org/"> ata </a>
 </p>
