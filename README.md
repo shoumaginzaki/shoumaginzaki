@@ -13,5 +13,5 @@
    she / they ‎ ‎ ୨ ★ ୧ ‎ ‎ c+h enc ‎ ‎｡
 </p>
 <p align="center">
-   <a href="https://rentry.co/specialshutin"> rntry</a> ‎ ‎ ⊱  ۫ ׅ ✧ ‎ <a href="https://shoumaginzaki.atabook.org/"> ata </a>
+   <a href="https://rentry.co/specialshutin"> rntry</a> ‎ ‎ ‎ ⊱  ۫ ׅ ✧ ‎ ‎ <a href="https://shoumaginzaki.atabook.org/"> atabook </a>
 </p>
