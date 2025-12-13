@@ -10,7 +10,7 @@
    🐶 ‎ ‎ ‎ ‎ <b>shouma</b> ‎ ‎ ‎ ︵︵ ‎ ‎ ‎ sealie ‎ ‎ ‎ ۶ৎ
 </p>
 <p align="center">
-   she / they ‎ ‎ ୨ ★ ୧ ‎ ‎ c+h freely ‎ ‎｡
+   ‎ ‎ she / they ‎ ‎ ୨ ★ ୧ ‎ ‎ c+h freely ‎ ‎｡
 </p>
 <p align="center">
    <a href="https://rentry.co/specialshutin"> rntry</a> ‎ ‎ ‎ ⊱  ۫ ׅ ✧ ‎ ‎ <a href="https://shoumaginzaki.atabook.org/"> atabook </a>
