@@ -1,5 +1,5 @@
 <h3 align="center"> <i>
-    ᶻ 𝗓 𐰁 ‎ ‎ ❝ ‎ bad thoughts give me bad dreams, and my bad dreams make me sleepwalk.‎  ❞
+    ❝ ‎ bad ‎ thoughts ‎ give ‎ me ‎ bad ‎ dreams, ‎ and ‎ my ‎ bad ‎ dreams ‎ make ‎ me ‎ sleepwalk .‎  ❞
 </h3> </i>
 
 <p align="center">
@@ -7,10 +7,10 @@
 </p>
 
 <p align="center">
-   🐶 ‎ 𓎠𓎟 ‎ sealie ‎ ︵︵ ‎ shouma ‎ ‎ ۶ৎ
+   🐶 ‎ ‎ ‎ ‎ sealie ‎ ‎ ‎ ︵︵ ‎ ‎ ‎ shouma ‎ ‎ ‎ ۶ৎ
 </p>
 <p align="center">
-   she / they ‎ ୨ ★ ୧ ‎ c+h encouraged ‎ ‎｡
+   she / they ‎ ‎ ୨ ★ ୧ ‎ ‎ c+h enc ‎ ‎｡
 </p>
 <p align="center">
    <a href="https://rentry.co/specialshutin"> rntry</a> ‎ ‎ ⊱  ۫ ׅ ✧ ‎ <a href="https://shoumaginzaki.atabook.org/"> ata </a>
